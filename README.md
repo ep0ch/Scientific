@@ -1,3 +1,6 @@
 # Scientific
 MIT Project (Demo) [Learning]
-This is a demo page for [PSN cards](https://psnpro.net)
+# Free PSN Codes
+## How To Get Free PSN Codes
+
+You can get [free PSN codes](https://psnpro.net) from many places.
